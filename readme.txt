@@ -1,0 +1,3 @@
+One piece
+Zoro
+Nami
